@@ -1,0 +1,1 @@
+# Cornershop_techinal_case
